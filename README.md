@@ -1,1 +1,1 @@
-# L-gica-Super-Trunfo
+# Logica-Super-Trunfo
